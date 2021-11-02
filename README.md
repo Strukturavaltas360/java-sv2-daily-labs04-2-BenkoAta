@@ -1,0 +1,1 @@
+4. heti konzultációkon kiadott gyakorlati feladataim
